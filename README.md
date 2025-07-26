@@ -2,4 +2,5 @@
 
 ------------------------
 
+# I LOVE LEAFY SO MUCH
 ![LeafyCheer](https://github.com/user-attachments/assets/6e4940b3-59b6-4d99-923c-b079cce59a9b)
