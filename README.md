@@ -1,7 +1,9 @@
+# me!! hi this is me btw!! my name is pin!! (:7)
+<img width="642" height="570" alt="image" src="https://github.com/user-attachments/assets/018f1b2c-f84f-4865-8a5a-329c610038f0" />
+
+
+
+------------------------------------------------------------
+
 https://github.com/user-attachments/assets/462d917a-8877-47a5-9388-491c64bff39e
-
-------------------------
-
-https://github.com/user-attachments/assets/3ebfe4e0-47d5-423b-9a7f-77f0fbd23da8
-
 
