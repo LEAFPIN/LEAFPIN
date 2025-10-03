@@ -1,5 +1,7 @@
-# me!! hi this is me btw!! my name is pin!! ok? :7
-<img width="642" height="570" alt="image" src="https://github.com/user-attachments/assets/e73ba538-eac3-41f9-8bfd-192c061b70bf" />
+<img width="700" height="601" alt="image" src="https://github.com/user-attachments/assets/5086a2b1-4887-42c5-9aef-62b1e0cd4224" /> 
+
+# art by me ok? aww leafpin you're so romantic
+
 
 
 
