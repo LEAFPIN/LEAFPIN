@@ -5,5 +5,3 @@
 <img width="320" height="323" alt="my_wife_leafy" src="https://github.com/user-attachments/assets/2db38997-3d3f-4a20-ac54-83daf4fe8e6d" />
 
 # THE pin of ponytown btw thats me!!
-
-<img width="479" height="513" alt="pin_knife" src="https://github.com/user-attachments/assets/167b66bd-2fdb-45dd-b9a6-e01ce07a8ea7" />
