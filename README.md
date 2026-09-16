@@ -1,7 +1,25 @@
-# keep in mind i have issues with interacting first so if you're oomf and i dont talk to you I DONT HATE YOU IM JUST SHY
-# also if i dont reply to your whispers i promise im not ignoring you im afk like 90% of the time!!!
+<div align="center">
+  <img width="500" height="400" alt="lefpin" src="https://github.com/user-attachments/assets/8d3e4d9f-b7b3-4c0f-8c30-931254564d1f" />
+</div>
 
-<img width="320" height="323" alt="SHE_IS_ME" src="https://github.com/user-attachments/assets/5e404c17-7d39-4937-8c3a-ef1ffff442ca" />
-<img width="320" height="323" alt="my_wife_leafy" src="https://github.com/user-attachments/assets/2db38997-3d3f-4a20-ac54-83daf4fe8e6d" />
+---
 
-# THE pin of ponytown btw thats me!!
+$$\color{#d41616}{📌‎ ‎ ‎ ;;‎ ‎ 𝙥in‎ ‎ ‎ /‎ ‎ ‎ 𝙢aya‎ !!‎ ‎ ‎ ✦︎}$$   
+
+$$\color{#98d416}{𝜗𝜚‎ ‎ ‎ n1‎ ‎ ‎ 𝙡eafpin‎ 𝙜lazer‎ <🍃📌3}$$ 
+
+$$\color{#d41616}{ᯓ‎ ⭐‎ 𝙝yperfeminine‎ ‎ ‎ .‎ ‎ ‎ 𝙨y𝙨}$$  
+
+<div align="center">
+  
+‎[atabook](leafpin.atabook.org)‎ ‎ |‎ ‎ [prns.cc](https://pronouns.cc/Leafpin)‎ ‎ |‎ ‎ [twt](x.com/pinfectionism)
+
+</div>
+
+$$\color{#98d416}{''‎ 𝙮ou‎ 𝙣eed‎ 𝙖‎ 𝙝eroic‎ 𝙡eader‎ 𝙡ike‎ 𝙢e!‎ ''}$$
+
+---
+
+<div align="center">
+  <img width="300" height="40" alt="Lesbian" src="https://github.com/user-attachments/assets/02cbe8f6-972b-4b34-81b7-d63a7c4cf272" />
+</div>
