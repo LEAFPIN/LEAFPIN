@@ -12,7 +12,7 @@ $$\color{#d41616}{ᯓ‎ ⭐‎ 𝙝yperfeminine‎ ‎ ‎ .‎ ‎ ‎ 𝙨y�
 
 <div align="center">
   
-‎[atabook](leafpin.atabook.org)‎ ‎ |‎ ‎ [prns.cc](https://pronouns.cc/Leafpin)‎ ‎ |‎ ‎ [twt](x.com/pinfectionism)
+‎[atabook](https://leafpin.atabook.org)‎ ‎ |‎ ‎ [prns.cc](https://pronouns.cc/Leafpin)‎ ‎ |‎ ‎ [twt](https://x.com/pinfectionism)
 
 </div>
 
